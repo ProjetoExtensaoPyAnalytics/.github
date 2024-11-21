@@ -12,7 +12,7 @@ Neste ano de 2024, o grupo de estudos passou a ser um curso intensivo, preparand
 
 ## Coordenadora
 
-- [Professora Andréa Sabedra Bordin](https://www.linkedin.com/in/andreasabedrabordin/)
+- [Andréa Sabedra Bordin](https://www.linkedin.com/in/andreasabedrabordin/)
 
 ## Histórico
 
